@@ -1,6 +1,6 @@
 # 🐯 Youssef Khouchaf
 
-**`Computer science / A passionate engineer in Artificial intelligence and sodtware engineering`**
+**`Computer science / A passionate engineer in Artificial intelligence and software engineering`**
 
 As part of my master degree, I am currently seeking for an internship for a period between 3 and 6 months which could start between March and May 2023. I am interested in the fields of artificial intelligence, software engineering, data, cyber-security. I am motivated, determined, and enjoy working in a team environment. I am confident that this internship will be a rich and formative experience for me, and I hope to have the opportunity to utilize my skills and passion to benefit your company.
 
