@@ -1,8 +1,9 @@
 # 🐯 Youssef Khouchaf
 
-**`Computer science / A passionate engineer in Artificial intelligence and software engineering`**
+**`Computer science / Consulting | passionate in Artificial intelligence and Data science`**
 
-As part of my master degree, I am currently seeking for an internship for a period between 3 and 6 months which could start between March and May 2023. I am interested in the fields of artificial intelligence, software engineering, data, cyber-security. I am motivated, determined, and enjoy working in a team environment. I am confident that this internship will be a rich and formative experience for me, and I hope to have the opportunity to utilize my skills and passion to benefit your company.
+As a future Centrale Lille graduate, I'm looking for a job starting in October or November 2023. My main interests lie in the fields of artificial intelligence, data, cybersecurity, cloud, as well as management and project management. I'm highly motivated, determined and enjoy working in a team. I look forward to putting my skills and passion to work for your company.
+
 
 - 📫 How to reach me **ykhouchaf@gmail.com**
 
