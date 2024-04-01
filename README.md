@@ -2,7 +2,7 @@
 
 **`Computer science / Consulting | passionate in Artificial intelligence and Data science`**
 
-As a future Centrale Lille graduate, I'm looking for a job starting in October or November 2023. My main interests lie in the fields of artificial intelligence, data, cybersecurity, cloud, as well as management and project management. I'm highly motivated, determined and enjoy working in a team. I look forward to putting my skills and passion to work for your company.
+As a graduate of Centrale Lille and consultant in AI at Wavestone, I'm looking for a new opportunity. My main areas of specialization are Artificial Intelligence, Data, Cybersecurity, Cloud and project management. I'm highly motivated, determined and enjoy working in a team.
 
 
 - 📫 How to reach me **ykhouchaf@gmail.com**
